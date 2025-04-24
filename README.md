@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+你好
+我是中山大學經濟學研究所
+一年級
+我是
+吳昇祐
